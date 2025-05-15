@@ -1,0 +1,2 @@
+# Hugaiface
+Meme coin
